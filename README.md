@@ -10,6 +10,9 @@ Team Members:
 - Otávio Augusto Franchini
 - Ygor Julian
 
+![image](https://github.com/user-attachments/assets/5efa930f-699d-4c12-af57-fa8da71d1151)
+
+# APEX Team - 2024
 
 We are excited to showcase our innovations, collaboration, and dedication as we navigate the maze and strive for success. 
 
