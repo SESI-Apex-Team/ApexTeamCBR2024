@@ -11,4 +11,6 @@ Team Members:
 - Ygor Julian
 
 
-We are excited to showcase our innovations, collaboration, and dedication as we navigate the maze and strive for success. Let's go, Apex Team!🤖
+We are excited to showcase our innovations, collaboration, and dedication as we navigate the maze and strive for success. 
+
+Let's go, Apex Team!🤖
